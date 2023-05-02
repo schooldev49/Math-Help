@@ -1,3 +1,4 @@
 <div align="center">
-i will definetly update this because i don't like calculating math, abstract math > calculations ngl
+Goofy I didn't remember to update this repo!!1
+
 </div>
